@@ -1,5 +1,5 @@
 The most effective and  best varicocele treatment can be available through homeopathy. Varicocele is an medical problem which is the result of the swelling of veins in the scrotum, similar to varicose veins found in legs. It's a fairly frequent condition, but the majority of sufferers are in the age group of 15 to 25 years old however it is a common occurrence in all older men. It can cause problems with fertility, discomfort and, in some cases, the testicles may shrink. Surgery is a possibility, but homeopathy can assist in managing the condition by varicocele treatment without surgery.
-
+https://bharathomeopathy.com/diseases/male-infertility/varicocele-treatment-without-surgery/
 Understanding Varicocele and Its Grades
 
 Before you take on the responsibility of homeopathy for treating varicocele, be aware of the system of grading and the manner in which it manifests. Varicocele is a condition that is rated between 1 and 4 according to its severity. problem.
